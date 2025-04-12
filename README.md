@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+##🎙️ Experiences
+- 충북대학교 컴퓨터공학과 재학중
+- 충북대학교 컴퓨터 멘토링
+- 
